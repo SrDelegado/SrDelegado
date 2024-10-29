@@ -16,7 +16,7 @@ Soy cantante y puedes encontrar mi música en mi canal de YouTube [SrMaurons](ht
 - Animador de Hotel
 
 ## 📫 Contáctame
-- [Tu correo electrónico]
-- [Tus redes sociales o perfil de LinkedIn]
+- nicomaurogarner@gmail.com
+- https://hyperfollow.com/srmaurons
 
 ¡Gracias por visitar mi perfil! Estoy emocionado por conectar y colaborar en nuevos proyectos.
