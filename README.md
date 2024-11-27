@@ -10,10 +10,8 @@ Soy un programador web en busca de nuevos desafíos en el mundo del desarrollo d
 Soy cantante y puedes encontrar mi música en mi canal de YouTube [SrMaurons](https://www.youtube.com/@SrMaurons).
 
 
-## 🌱 Otras Titulaciones
-- Tecnico forestal
+## 🌱 Otras Habilidades
 - Actor de Doblaje
-- Animador de Hotel
 - Escritor
 
 ## 📫 Contáctame
