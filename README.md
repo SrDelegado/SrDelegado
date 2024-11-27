@@ -14,6 +14,7 @@ Soy cantante y puedes encontrar mi música en mi canal de YouTube [SrMaurons](ht
 - Tecnico forestal
 - Actor de Doblaje
 - Animador de Hotel
+- Escritor
 
 ## 📫 Contáctame
 - nicomaurogarner@gmail.com
