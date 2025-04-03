@@ -12,7 +12,8 @@ Soy cantante y puedes encontrar mi música en mi canal de YouTube [SrMaurons](ht
 
 ## 🌱 Otras Habilidades
 - Actor de Doblaje
-- Escritor
+- Escritor.
+   ___
   Mi Primer Libro: [Caballero Sin Rey](  https://www.amazon.es/Caballero-sin-Rey-Sr-Maurons/dp/B0DP1JYWYT/ref=sr_1_1?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=3BPR29XY2G051&dib=eyJ2IjoiMSJ9.v7QETPSuzF9eP6FS0L7SXKnUHf4iv47ixLtN0deEYC-FyECokuZbcKvXGWcaZD5IbTETYRiZ-F5KqQTbLi-Lzl6xjVrhso2wz-IFPuQo4Zgv3g_MJhVJu5ZTVmjO-uJ9oIAR-wyDXonTJHXCsYEx4HGgi35ghsgO2G2q_dqMeLJNhBhVzPw4jMffaT__NwmUNFd5F45dPEpSxixEYuWVeEeUm1zkrqsm5rbqWixeDVE.uuKLcwAn1x4_wttZda4z4o8g0ViFblg2btkSwIs5S1c&dib_tag=se&keywords=caballero+sin+rey&qid=1743701316&s=books&sprefix=caballero+sin+rey%2Cstripbooks%2C104&sr=1-1).
 
 
