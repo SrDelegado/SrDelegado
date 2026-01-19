@@ -6,8 +6,8 @@ Soy un programador web en busca de nuevos desafíos en el mundo del desarrollo d
 
 - **Programación de Videojuegos**: Actualmente explorando Unreal Engine.
 
-## 🎵 Música
-Soy cantante y puedes encontrar mi música en mi canal de YouTube [SrMaurons](https://www.youtube.com/@SrMaurons).
+## Canales
+YouTube [SrMaurons](https://www.youtube.com/@SrMaurons).
 
 
 ## 🌱 Otras Habilidades
